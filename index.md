@@ -4,7 +4,7 @@ Please stop your behavior, or else I'll send you to the discipline teacher.
 
 It's never too late to start doing the right thing.
 
-Leniency to those who confess,severity to those who resist.
+Leniency to those who confess, severity to those who resist.
 
 ## Related:
 
